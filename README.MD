@@ -1,2 +1,2 @@
 in construction 
-right now a random honey page... soon? might turn into smth much cooler ;)
+some random text as a guide in future
